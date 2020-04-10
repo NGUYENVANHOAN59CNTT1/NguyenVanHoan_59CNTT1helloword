@@ -1,2 +1,0 @@
-# NguyenVanHoan_59CNTT1helloword
-baitap
